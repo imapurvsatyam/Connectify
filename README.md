@@ -179,7 +179,7 @@ GitHub:
 https://github.com/imapurvsatyam
 
 LinkedIn:  
-https://www.linkedin.com/www.linkedin.com/in/apurv-satyam-5a72662b8
+https://www.linkedin.com/in/apurv-satyam-5a72662b8
 
 
 
